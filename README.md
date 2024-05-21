@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shreeshhhh
+- 👋 Hi, I’m @shrshhhh
 - 👀 I’m interested in coding
 
 
